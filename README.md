@@ -1,1 +1,0 @@
-# codingidoltask1
